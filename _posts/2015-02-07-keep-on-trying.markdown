@@ -1,0 +1,27 @@
+---
+layout: post
+title: keep on trying
+permalink: keep-on-trying
+---
+
+I think I've mentioned a few times that I don't really have much faith in humanity – there have been too many instances where we have collectively chosen the easy over the difficult, the short-term versus the long-term, the choice to perpetuate negativity over positivity. 
+
+It remains a disconnect, between my entire cynicism of humanity and my idealism for change. I think my idealism is sustained by the fact that history does not depend on the majority to change, and that time and time again, we have shown tremendous resilience despite the damage some of us have chosen to do. You do not need everyone to believe you in order to start a war, but you do not need to get buy-in from everyone to start building rockets too. 
+
+Sometimes I think we tend to over-focus on the current slice of time, forgetting the progress we have made over thousands of years. Similarly, we take for granted what has been handed to us on a plate precisely because of the work that has been done by the previous generations. 
+
+I find it difficult to take my privilege for granted, and I want to say that the concept of meritocracy is bullshit. It annoys me to no end when people say success will come when you work hard. There are people in this world, billions of them in fact, that will not see the light at the end of the tunnel no matter how hard they work. They are screwed over by their socio-economic factors, which are largely dependent about their geographic location. I resent it people tell me that I deserve my "success", as opposed to other people not deserving theirs because they didn't choose to work hard enough, however "success" is being defined. I cannot tell you how many times I had to depend on the random colliding of events to even be alive, much less anything else. 
+
+Yes, I worked hard, yes, I showed up too, and I took giant leaps of faith. But I recognize the fact that I was born at the right place, at the right time, and that made all the difference to my life. I am sorry, but it doesn't take an economist to point out the fact that I could work my bones off but it wouldn't have mattered if I was born in a place where even basic literacy is a challenge or if I was born at a time when gender-equality or technology was not in my favor. I also consider myself very lucky to have my skills recognized at a time when they are in demand, but I remember the early decade in my life when I had to fight really hard to work in design.
+
+I could look back in time and said that I made the right bets, but who knew? 
+
+I think about all the people who have suffered in order for me to be comfortably typing this piece in my chair today. I think about people like Alan Turing, the activists who gave up their lives and security, I think about the countless people who lost their lives in wars, so that I can have a taste of peace. 
+
+So I won't lie. I find it incredibly frustrating when I see us focusing our effort and energy into things that do not matter at this point in time. Yes, when we have achieved world peace, I don't care if we want to make the next generation photo-sharing app, but right now, there are really more important problems to solve.  
+
+Yet, it is easy for me to not even try, because I genuinely do not see how we can dig ourselves out of the massive hole we've created, so I may as well sit back, or retire in the mountains. If I truly believe the end will be the same, why do I repeatedly put myself in uncomfortable situations just for the hope of a little change? I don't enjoy putting myself out there all the time, I don't enjoy facing so much demoralization because well, guess what? The people doing the work can't help but be cynical too. Time and time again, we are being let down collectively, time and time again, we grab on to the tiny silver of hope we can have. 
+
+How many times can you have your heart broken? I ask myself this everyday. But I keep on trying anyway. I no longer even have time to feel like an impostor, because to be even in that position to ask that question is a luxury. The people in poverty do not wake up everyday to ask themselves if they are good enough for something, because every single decision they have to make will result in their families having enough to eat or not. I know that if I incessantly worry whether I am capable of doing the work, I am giving up precious energy to do the actual work instead. 
+
+I keep on trying, because I care deeply, and when you care this deeply, a lot of things cease to matter. It is like loving someone because you simply do, you do not love because it is tied to some condition tied to success. Maybe I don't wish to admit this, but despite all the disappointment I have felt, the love I have for humanity is unconditional – because no amount of logic or rationality can explain why I keep on trying, despite being made to feel like having ideals is wrong in this world where we celebrate cannibalizing our own people economically, and yet holding that potentially misguided faith that one day, we could take that giant leap into a world where it is clearly evident that our survival is really dependent on each other, that doing well at the expense of others is not going to be sustainable.

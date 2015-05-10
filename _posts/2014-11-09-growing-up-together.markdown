@@ -1,0 +1,34 @@
+---
+layout: post
+title: growing up together
+permalink: growing-up-together
+---
+
+This trip back to Singapore I made a very deliberate effort to meet up with people I deeply care about. I packed in all the meetings I could while spending time with my family as well. I had to spend a full day in Seoul recovering from a migraine that happens every time I over-stretch myself, but it was very much worth it because I got to be present with the people I love.
+
+Us Singaporeans are a strange bunch. To me, it takes incredible resilience and courage to carve out our own individual paths in a place where conformity is hugely prided. I have found so much inspiration, solace and strength through an unexpected peer support network. These people have seen me grow from a nervous, shy, stuttering person to someone who is able to look at any stranger in the eye and have a conversation on equal footing. 
+
+Today, I just wanted to spend a little bit of time to express my appreciation to these people, because age has taught me never to take people we care about for granted, especially the ones who are willing to be there as witnesses to our growth.
+
+Spending time with [Danny](https://twitter.com/HipVangelist) is a must each time we are in the same city, be it SF or Singapore. I have spent countless hours in deep conversation with him, including nights when we stopped only because the sun was about to rise. We have very similar philosophies in life on a macro level, but we end up in non-conclusive debates on a micro level because we operate on different frequencies. There are some people who are great to be in disagreement with, because they serve as important checks to our lives, and Danny is one of them. More importantly, he was there when I had to make several life-changing decisions back in 2011. Neither of us saw what was to come in both our lives for the next few years, but it has been incredulous.
+
+Then, there is [Adri](http://twitter.com/skinnylatte), but I have written what was virtually the [most romantic platonic love letter](http://fragmentedposterous.wordpress.com/2012/10/03/why-i-love-skinnylatte/) ever, so I'll save the words this time. 
+
+[Alex](https://angel.co/alex-goh) and I worked together for a really short while in 2005, before he went on to build one of the [best design portals in the world](http://designtaxi.com). We lost touch for half a decade before reconnecting again, only because I needed his help in verifying my employment during that period (yeah, visa). It turned out to be a blessing in disguise, because since then we've connected every time we are in the same city. This is special to me because we knew each other at a time long before our current trajectories, before all the extra weight we hold now.
+
+[Cheekiong](http://instagram.com/bubbletreats) goes way further back, all the way in 2002, when he gave me my first job in graphic design even though I had zero experience in print. We can only connect the dots backwards, and his decision enabled me to spend the next few years of my career picking up all the design fundamentals I needed while working on print. Having a print design background was key to my development as a designer. It was those days that I learned grids, type, offset print proccesses, branding principles. There is nothing like having to design for a print run with no point of return while praying fervently that I didn't make a typo or accidentally included a low-res image. Some days I still miss running my hands over ink swatches and maiming my fingers while working on paper mockups. Print is still something I deeply love.
+
+I got to visit Google Singapore while meeting [Lucian](http://tribolum.com). Lucian has been writing on the web before blogging was even a thing. I have been reading him for a long time before we connected over twitter in 2008, and we eventually bonded over a common purpose in trying to make things around us better in the ways we know how to. I admire him for the love of his country, while he has been patient with me for the resentment of mine. Same country, vastly different feelings.
+
+I somehow see [Audrey](http://twitter.com/audreytan) and [Min](http://twitter.com/minxuan) as the same entity. This time around I only managed to see Audrey, only because I know I'll get to catch up with Min soon in the Bay Area. There wasn't a typical ramp up period while getting to know them. I met them separately, and since then it was like we were separated from birth, almost. Well, we can't be separated from birth since they're more than half a decade younger, but I find tremendous comfort and pride with the work they have been doing despite the tremendous challenges they face. I met them when they were 23, and it has just been amazing to be a witness to their journey, the same way they have been to mine. 
+
+[Bernise](http://weare.sg/bernise-ang-syinc/) is the most recent addition, but a profound one. Time doesn't make a difference when it comes to forming deep connections. We only met up last year because I happened to see her tweet that she was visiting SF. I have been observing her work on social impact for a long while before getting to know her. Since then it has been inspiring and energizing witnessing her relentless dedication to [the work she believes in](http://underthehood.cc/). Just having her in my life is enough to make me feel less delusional about the change I am hoping to make, because she is already walking that talk in ways I can probably never match.
+
+Finally, there are several personal friends that I met up with but are not named here, not because they are less important, but they belong to a different space in my life. I have a bunch of friends whom I've known since I was 17, and it matters a lot to me because they have seen the worst of me and somehow they are still around for me. There are other ones who have known me way before my life in San Francisco became a remote possibility – these are the ones there with me when I was a crying, whining mess, before I knew what to do with my life, before meaning found me. 
+
+There are other people I couldn't meet as well due to scheduling constraints, but connections are not measured by the time we spend together, but rather the immediacy we feel after all that time apart.
+
+I am writing this to express my immense gratitude to the people who are with me in my life, because I would be very much less without their stories, growth, empowerment, support and their individual desire to make the change they want to see in this world and in their own lives.
+
+I hope we can all continue to grow up together, and for a long time to come, bear witness to each other's unfolding journeys – where we lend our strengths to one another, while we continue to be unafraid of falling and picking ourselves up, over and over again.
+

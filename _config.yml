@@ -1,0 +1,9 @@
+name: Fragmented thoughts of a fragmented mind
+markdown: redcarpet
+highlighter: true
+port: 9999
+exclude: [config.codekit]
+permalink: /:title/
+url: http://journal.winnielim.org
+author: Winnie Lim
+description: random fragments of life and love

@@ -1,0 +1,20 @@
+---
+layout: post
+title: a love that inspires
+permalink: a-love-that-inspires
+---
+
+In a world that can feel mostly alienating to me sometimes, there are a few people whom I feel a kindred spirit to. Min and Alam are two such people. Today, I am very privileged to witness their marriage. 
+
+Seeing them together makes me want to reverse any cynicism I have about love. I have known them for five years now, throughout the years their love has grown exponentially. Each time I see them they are more bonded than the last. If there is such a thing as soulmates, they would be a testament for it. For they are two amazing individuals who not only bring out the best in each other, they bring out the best in other people, together.
+
+They possess an innate understanding that their being together is not only for themselves, but for their shared purpose towards humanity. It is one thing to listen to them talk about it, and a whole other level to hear them etch that into a sacred formalization through their marriage vows. How beautiful it is – I am at a loss of words to describe – for two human beings who vowed to share that love with the world, on top of their love for each other?
+
+I am only too blessed to know them in person to have experienced their shared love for humanity, and it gives me immense pride to call them my fellow human beings. Being a friend to them is really a huge bonus.
+
+We hardly have the time and space to spend time with each other, but each time we manage share a space, I have felt nothing but love and support from them. Their presence in this world anchors my faith in humanity, they also make me feel so much less alone for believing we are capable of making a much better world for ourselves.
+
+I am actually terrible at keeping in touch with all the people I love, so through the written word, I hope to be at least capable of expressing just a little bit, how much their friendship has inspired and supported me. Thank you, Min and Alam, I know you will both continue to be a much needed force of love.
+
+<blockquote class="instagram-media" data-instgrm-version="4" style=" background:#FFF; border:0; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:658px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);"><div style="padding:8px;"> <div style=" background:#F8F8F8; line-height:0; margin-top:40px; padding:50% 0; text-align:center; width:100%;"> <div style=" background:url(data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACwAAAAsCAMAAAApWqozAAAAGFBMVEUiIiI9PT0eHh4gIB4hIBkcHBwcHBwcHBydr+JQAAAACHRSTlMABA4YHyQsM5jtaMwAAADfSURBVDjL7ZVBEgMhCAQBAf//42xcNbpAqakcM0ftUmFAAIBE81IqBJdS3lS6zs3bIpB9WED3YYXFPmHRfT8sgyrCP1x8uEUxLMzNWElFOYCV6mHWWwMzdPEKHlhLw7NWJqkHc4uIZphavDzA2JPzUDsBZziNae2S6owH8xPmX8G7zzgKEOPUoYHvGz1TBCxMkd3kwNVbU0gKHkx+iZILf77IofhrY1nYFnB/lQPb79drWOyJVa/DAvg9B/rLB4cC+Nqgdz/TvBbBnr6GBReqn/nRmDgaQEej7WhonozjF+Y2I/fZou/qAAAAAElFTkSuQmCC); display:block; height:44px; margin:0 auto -44px; position:relative; top:-22px; width:44px;"></div></div><p style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; line-height:17px; margin-bottom:0; margin-top:8px; overflow:hidden; padding:8px 0 7px; text-align:center; text-overflow:ellipsis; white-space:nowrap;"><a href="https://instagram.com/p/18uSUlIip5/" style=" color:#c9c8cd; font-family:Arial,sans-serif; font-size:14px; font-style:normal; font-weight:normal; line-height:17px; text-decoration:none;" target="_top">A photo posted by Winnie Lim (@wynlim)</a> on <time style=" font-family:Arial,sans-serif; font-size:14px; line-height:17px;" datetime="2015-04-26T18:49:48+00:00">Apr 26, 2015 at 11:49am PDT</time></p></div></blockquote>
+<script async defer src="//platform.instagram.com/en_US/embeds.js"></script>
