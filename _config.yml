@@ -1,6 +1,6 @@
 name: Fragmented thoughts of a fragmented mind
 markdown: redcarpet
-highlighter: true
+highlighter: pygments
 port: 9999
 exclude: [config.codekit]
 permalink: /:title/
