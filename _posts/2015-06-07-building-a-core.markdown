@@ -8,11 +8,11 @@ I feel like I am in a period of transition, but maybe I am always meant to be in
 
 I have just come very close to accepting that there is no stability in my life and never will, complete with the cliche that change is the only constant.
 
-Since writing [my core document], I've been actively trying to rearrange my life, but knowing what to change is hard enough, trying to really apply those changes in a sustainable manner is the harder part. 
+Since writing [my core document](https://medium.com/change-i-want-to-see/piecing-myself-together-after-burnout-3df64117ad09), I've been actively trying to rearrange my life, but knowing what to change is hard enough, trying to really apply those changes in a sustainable manner is the harder part. 
 
 I have titled the document, "Core", because that is what I am building. I am still adding to it as new epiphanies and insights rise to mind, and it is both amusing and scary to observe how quickly I fall back into old patterns if I stop being hyper-conscious about it. 
 
-Being over-empathetic with a low sense of self-worth, coupled with a real innate desire to always put others before me, is one of the worst possible combinations ever. Without a strong core, I will always be living my life according to people's mould of me. The irony is that even if I choose to live a life of service, there must be something to be served, and this cycle of rapid self-destruction is more of a burden to the world than a contribution, as I have pointed out in my [last Medium post].
+Being over-empathetic with a low sense of self-worth, coupled with a real innate desire to always put others before me, is one of the worst possible combinations ever. Without a strong core, I will always be living my life according to people's mould of me. The irony is that even if I choose to live a life of service, there must be something to be served, and this cycle of rapid self-destruction is more of a burden to the world than a contribution, as I have pointed out in my [last Medium post](https://medium.com/change-i-want-to-see/piecing-myself-together-after-burnout-3df64117ad09).
 
 I have always been a person of extremes, and what I am trying to learn is moderation and balance. It is not easy trying to re-wire how I think, feel and react. The past few weeks I have been feeling some low-grade form of resentment from consistently ceding my power to people because that had been programmed into me. Well, they say the first step to healing is awareness.
 
