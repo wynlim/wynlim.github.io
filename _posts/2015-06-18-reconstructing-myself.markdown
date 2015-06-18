@@ -9,8 +9,8 @@ If I haven’t responded, it is not because I don’t care, but I need all the e
 
 I used to write more like this, where I don’t have a particular topic or agenda, but just free-flowing words that exposed my stream of consciousness. Then, people started telling me that in order to be a “good writer”, I should be more concise and structured. You know, like Hemingway. I contemplated it for a while, because accepting feedback and “growing to be better” is important, but I decided otherwise:
 
-\<blockquote class="twitter-tweet" lang="en"\>\<p lang="en" dir="ltr"\>I&#39;m not trying to be people&#39;s definition as a &quot;good writer&quot;, I just want to write as me.\</p\>&mdash; Winnie Lim (@wynlim) \<a href="https://twitter.com/wynlim/status/456628764588244995"\>April 17, 2014\</a\>\</blockquote\>
-\<script async src="//platform.twitter.com/widgets.js" charset="utf-8"\>\</script\>
+<blockquote class="twitter-tweet" lang="en"><p lang="en" dir="ltr">I&#39;m not trying to be people&#39;s definition as a &quot;good writer&quot;, I just want to write as me.</p>&mdash; Winnie Lim (@wynlim) <a href="https://twitter.com/wynlim/status/456628764588244995">April 17, 2014</a></blockquote>
+<script async src="//platform.twitter.com/widgets.js" charset="utf-8"></script>
 
 I tweeted that in April 17 of last year, and I think I have progressively gotten better (according to my own standards) about writing as myself, but something else got in the way. 
 
