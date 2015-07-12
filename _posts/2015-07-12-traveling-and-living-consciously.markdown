@@ -1,3 +1,4 @@
+---
 layout: post
 title: traveling and living consciously
 permalink: traveling-and-living-consciously
