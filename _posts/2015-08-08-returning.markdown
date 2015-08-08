@@ -9,7 +9,7 @@ Apparently I was wrong, and I am consistently wrong about the trajectory of my f
 
 On hindsight, the passing of my grandmother kickstarted this entire process. I honestly thought I would be resentful, that my responsibilities and obligations would make it impossible for me to stay away. But it turned out love always wins. Instead of resentment, I am grateful to have this reminder early enough to change the course of my trajectory. I want to be a person who chooses to love. 
 
-There is something about being Asian, being Chinese, being Singaporean. I started to appreciate typing Singlish texts to people back in Singapore: “Why you like that one?” (Why are you behaving like this?) I started to understand why Adrianna Tan keeps [posting about the pork noodles] she couldn’t have when travels, the design decisions my government have made for the country, even if I don’t agree with them. 
+There is something about being Asian, being Chinese, being Singaporean. I started to appreciate typing Singlish texts to people back in Singapore: “Why you like that one?” (Why are you behaving like this?) I started to understand why Adrianna Tan keeps [posting about the pork noodles](http://popagandhi.com/2009/11/you-asians-have-two-stomachs/) she couldn’t have when travels, the design decisions my government have made for the country, even if I don’t agree with them. 
 
 In the last few years, each time I returned to Singapore, I seemed to have an allergic reaction to her. I developed migraines, or felt like my life had been sucked out of me. I still keenly remember the pain I had growing up in the system; to be consistently told that you are a disappointment to the system. I get outraged over the child suicides still taking place in the country, or all the limitations that still exist.
 
@@ -23,6 +23,6 @@ Leaving Singapore was necessary in order to have the space to find the edges of 
 
 I am now capable of seeing pockets of love within my own country, because I have finally learned to see pockets of love within myself, and for myself.
 
-I am not sure what the future entails, but I know in order to become whole I need to integrate my past into my present, not disown it. I had felt like I was leading a separate identity and life in San Francisco, while shoving my past in Singapore into some deep dark corner, and now it is time to merge them both. That disconnect was subconsciously causing a lot of distress in me, manifesting in [a relapse of my depression]. More on that later.
+I am not sure what the future entails, but I know in order to become whole I need to integrate my past into my present, not disown it. I had felt like I was leading a separate identity and life in San Francisco, while shoving my past in Singapore into some deep dark corner, and now it is time to merge them both. That disconnect was subconsciously causing a lot of distress in me, manifesting in [a relapse of my depression](https://www.facebook.com/wynlim/posts/10153574670168223). More on that later.
 
 I will attempt to return to the sources of my breakage, and find healing from within. I want to choose love, and by loving what had hurt me, I let go of the power they had over me.
