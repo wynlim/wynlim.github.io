@@ -1,6 +1,6 @@
 ---
 layout: post
-title: paradoxically-living
+title: paradoxically living
 permalink: paradoxically-living
 ---
 It has been three days since I got back and I am thankful I haven't woken up in panic. I used to have these nightmares where I would literally wake up in San Francisco thinking that I was back in Singapore, so it is a giant step for me to be back here and not be in a perpetual panic attack.
