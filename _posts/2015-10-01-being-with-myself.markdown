@@ -5,7 +5,7 @@ permalink: being-with-myself
 ---
 I was looking forward to being in Bali after an intense 12 days in Singapore. That was always the original intention, to breathe, recover and heal. 30 days of doing nothing except recuperate sounds fun, doesn’t it?
 
-It does, until I am left in the middle of nowhere with nothing except myself (with my laptop and kindle). For the first time in the long time, I had nothing to distract me. No people to meet, no work to rush, no expectations to meet, no next place to go, no plans to fulfill, no dreams to hold on to. I have never really felt how much I have used busyness to numb my existence until now. Without work, [who am I]? 
+It does, until I am left in the middle of nowhere with nothing except myself (with my laptop and kindle). For the first time in the long time, I had nothing to distract me. No people to meet, no work to rush, no expectations to meet, no next place to go, no plans to fulfill, no dreams to hold on to. I have never really felt how much I have used busyness to numb my existence until now. Without work, [who am I](https://medium.com/change-i-want-to-see/who-am-i-b6546777fccd)? 
 
 There was a copy of Pema Chondron’s “The places that scare you” on my kindle, and right now, I am definitely at a place that is terrifying me. I am in an in-between state, the process of moving out from an old world I know, into a new world I don’t:
 
