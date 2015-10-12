@@ -95,7 +95,7 @@ hr {
 	h5{
 		font-size: 14px;
 	}
-	ul {
+	ul, ol {
 		overflow: auto;
 	}
 	li{
@@ -104,13 +104,14 @@ hr {
 		margin: 15px 0 50px 0;
 	}
 	blockquote {
-		margin: 0;
+		display: block;
 		padding-left: 25px;
 		border-left: 5px solid #eee;
 		font-style: italic;
+		color: #555;
 		
 		@media (min-width: 768px) { 
-			margin: 0 2em 0 0;	
+			margin: 2em 2em 2em 0;
 		}
 	}
 }
@@ -131,15 +132,29 @@ hr {
 
 .post{
 	li{
-		font-size: 0.9em;
-		list-style: disc;
+		font-size: 0.95em;
 		line-height: 1.5em;
 		margin: 11px 0;
 	}
+	ul {
+		li {
+			list-style-type: disc;
+		}
+	}
+
+	ol {
+		li {
+			list-style-type: decimal;
+		}
+	}
+}
+
+.comments {
+	padding: 50px 0;
 }
 
 footer{
-	border-top:1px solid #eee;
+	border-top: 1px solid #eee;
 	a{
 		font-size: 13px;
 	}
