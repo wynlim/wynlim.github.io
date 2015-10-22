@@ -9,7 +9,7 @@ The past few years I've steadily ascended a peak that I thought I wanted – to 
 
 Being in Bali is like trying to make a slow descent. I keep looking back, wondering if I could have stayed at the peak, but I knew the decision to descend has been set in motion much earlier than I knew.
 
-It is a painful process, the attempt to murder one's former existence. I thought breaking up with people was hard, but it seems harder breaking up with former self. There was so much I'd invested, there was so much other people had invested. I don't know what to do with my former dreams – disown them, deny them, honor them? Do I process my former self as a farce, as evidence that I didn't know myself well enough, or do I accept that it is simply one cycle that has ended and I must start a new one, no matter how much I actually miss being on my old one?
+It is a painful process, the attempt to murder one's former existence. I thought breaking up with people was hard, but it seems harder breaking up with my former self. There was so much I'd invested, there was so much other people had invested. I don't know what to do with my former dreams – disown them, deny them, honor them? Do I process my former self as a farce, as evidence that I didn't know myself well enough, or do I accept that it is simply one cycle that has ended and I must start a new one, no matter how much I actually miss being on my old one?
 
 Sometimes, love is just not enough, the song goes. It is not enough, be it people, cities or careers. One's calling, or one's natural self is difficult not to heed. My new self started cannibalizing my old self before I even knew what was happening. 
 
