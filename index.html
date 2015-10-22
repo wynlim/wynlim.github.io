@@ -3,8 +3,8 @@ layout: default
 ---
 <ul class="post-list">
 
-    {% for post in site.posts limit:5 %}
-      <li>
+    {% for post in site.posts limit:10 %}
+      <li class="post">
       	<div class="post-date">
       		<span>{{ post.date | date_to_string }}</span>
       	</div>
