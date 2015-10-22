@@ -97,8 +97,9 @@ hr {
 	}
 	ul, ol {
 		overflow: auto;
+		margin: 1em 0;
 	}
-	li{
+	.post {
 		float: left;
 		width: 100%;
 		margin: 15px 0 50px 0;
