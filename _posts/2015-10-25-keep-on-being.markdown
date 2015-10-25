@@ -3,7 +3,7 @@ layout: post
 title: keep on being
 permalink: keep-on-being
 ---
-I got encouraged by my discovery that [Charles Darwin had severe anxiety], had to lie in bed almost every day for hours, and yet he still made a huge contribution to the world. 
+I got encouraged by my discovery that [Charles Darwin had severe anxiety](https://www.brainpickings.org/2014/08/28/darwin-anxiety/), had to lie in bed almost every day for hours, and yet he still made a huge contribution to the world. 
 
 >  “Darwin had spent most of the past three decades — during which time he’d struggled heroically to write On the Origin of Species housebound by general invalidism. Based on his diaries and letters, it’s fair to say he spent a full third of his daytime hours since the age of twenty-eight either vomiting or lying in bed.”
 
