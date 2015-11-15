@@ -35,4 +35,4 @@ Today, I had plans to write something else, and it would have been easier to avo
 
 ### further reading:
 - [Beirut, Paris by Joey Ayoub](http://hummusforthought.com/2015/11/14/beirut-paris/)
-- [A radical experiment in empathy](http://hummusforthought.com/2015/11/14/beirut-paris/)
+- [A radical experiment in empathy](https://www.ted.com/talks/sam_richards_a_radical_experiment_in_empathy/transcript?language=en)
