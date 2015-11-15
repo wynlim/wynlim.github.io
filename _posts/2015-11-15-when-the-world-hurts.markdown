@@ -3,7 +3,7 @@ layout: post
 title: when the world hurts
 permalink: when-the-world-hurts
 ---
-I was in Paris just this summer, a city I deliberately chose for my first step into Europe. I met people who live in Paris, and have now lost people in Paris. This is a time when no words suffice.
+I was in Paris just this summer, a city I deliberately chose for my first step into Europe. I met people who live in Paris, and they have now lost people in Paris. This is a time when no words suffice.
 
 It is part of the human condition to have our hearts break more when it hits closer to us. We love what we know, we grieve over what we love. Perhaps it is more poignant because I know I could have been there. Anyone I know could have been there. Paris is a city where many of my people jet in and out of. 
 
