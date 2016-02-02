@@ -1,5 +1,5 @@
 name: Fragmented thoughts of a fragmented mind
-markdown: redcarpet
+markdown: kramdown
 highlighter: pygments
 port: 9999
 exclude: [config.codekit]
