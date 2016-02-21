@@ -1,6 +1,6 @@
 name: Fragmented thoughts of a fragmented mind
 markdown: kramdown
-highlighter: pygments
+highlighter: rouge
 port: 9999
 exclude: [config.codekit]
 permalink: /:title/
