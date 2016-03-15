@@ -7,6 +7,7 @@ permalink: the-now-the-limbic-brain-and-the-fear-of-abandonment
 One would think that zen masters can stop meditating on life since they have already achieved zenness, but there is this parable somewhere which I can’t remember – that the more zen one becomes, the more one has to meditate. 
 
 I wrote this in my journal recently:
+
 > I take it all that comes to me, I appreciate everything for what they are, and I let go, in order to embrace the next moment.
 
 In that moment it was clear and loud, I have felt a sense of peace, for that string of moments. The chaos returned, eventually. I guess this is what meditation is about – to remember it is all in the _now_, that each and every moment has to be evaluated on its own, to be parsed accordingly. 
