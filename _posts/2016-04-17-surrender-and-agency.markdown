@@ -4,7 +4,7 @@ title: surrender and agency
 permalink: surrender-and-agency
 ---
 
-I’ve been contemplating a lot on the [Tao Te Ching]((http://www.amazon.com/Lao-Tzu-Ching-About-Power/dp/1570623953) lately. We are often trapped in a hustle/do-er culture, without having the space to think if what we’re doing is conducive.
+I’ve been contemplating a lot on the [Tao Te Ching](http://www.amazon.com/Lao-Tzu-Ching-About-Power/dp/1570623953) lately. We are often trapped in a hustle/do-er culture, without having the space to think if what we’re doing is conducive.
 
 I find myself trapped in this mode even when I’m working on my experiments, urged relentless by the clock ticking down, without asking myself if the momentum I’m trying to build or carry is actually right for me as a whole. It is tempting to see produce as an easy way out, to have a visible output of one’s life. But once in a while I find the space to hold myself back, to ask myself, what was the original point of this experimental year? 
 
