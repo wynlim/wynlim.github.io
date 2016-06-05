@@ -7,17 +7,17 @@ Lately I’ve been thinking about my massive introversion. I think there is stil
 
 I am just exceptionally sensitive to stimuli. Reading an answer on Quora changed the way I understood my own introversion:
 
->  Introverts have high baseline levels of cognitive stimulation and arousal even at rest and thus are constantly trying to avoid any additional visual and social stimuli…When Introverts are pushed over their comfortable level of arousal, they have to bring in additional mental resources to filter out or handle the overload. – [source]((https://www.quora.com/Why-are-introverts-introverts)
+>  Introverts have high baseline levels of cognitive stimulation and arousal even at rest and thus are constantly trying to avoid any additional visual and social stimuli…When Introverts are pushed over their comfortable level of arousal, they have to bring in additional mental resources to filter out or handle the overload. – [source](https://www.quora.com/Why-are-introverts-introverts)
 
 I would say I am even more sensitive than an average introvert, and my tolerance levels are probably so low that sometimes it surprises me how I manage to survive life so far. These days I am grateful I can swim, because it calms my nervous system down and reduces my senses, or I would either fall physically sick or feel like I am going insane.
 
 Last year I tweeted:
 
-\<blockquote class="twitter-tweet" data-lang="en"\>\<p lang="en" dir="ltr"\>As an extreme introvert, synchronous communication drains me. I realized I&#39;ll be a lot more productive working independently in solitude.\</p\>&mdash; Winnie Lim (@wynlim) \<a href="https://twitter.com/wynlim/status/640949863899762688"\>September 7, 2015\</a\>\</blockquote\>
-\<script async src="//platform.twitter.com/widgets.js" charset="utf-8"\>\</script\>
+<blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">As an extreme introvert, synchronous communication drains me. I realized I&#39;ll be a lot more productive working independently in solitude.</p>&mdash; Winnie Lim (@wynlim) <a href="https://twitter.com/wynlim/status/640949863899762688">September 7, 2015</a></blockquote>
+<script async src="//platform.twitter.com/widgets.js" charset="utf-8"></script>
 
-\<blockquote class="twitter-tweet" data-lang="en"\>\<p lang="en" dir="ltr"\>which means maybe my work will never get far, but I am comforted throughout history people do isolate themselves for long periods to work.\</p\>&mdash; Winnie Lim (@wynlim) \<a href="https://twitter.com/wynlim/status/640950604290850816"\>September 7, 2015\</a\>\</blockquote\>
-\<script async src="//platform.twitter.com/widgets.js" charset="utf-8"\>\</script\>
+<blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">which means maybe my work will never get far, but I am comforted throughout history people do isolate themselves for long periods to work.</p>&mdash; Winnie Lim (@wynlim) <a href="https://twitter.com/wynlim/status/640950604290850816">September 7, 2015</a></blockquote>
+<script async src="//platform.twitter.com/widgets.js" charset="utf-8"></script>
 
 TLDR; I don’t have the stomach to manage the stimuli it requires to do the work I wish to do. I wish I could be  someone who is constantly willing to put herself out there to shape the world she believes in. I did try, only to end up in repeated burnouts or having to let people down. 
 
