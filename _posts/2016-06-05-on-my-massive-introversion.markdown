@@ -13,9 +13,6 @@ I would say I am even more sensitive than an average introvert, and my tolerance
 
 Last year I tweeted:
 
-<blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">As an extreme introvert, synchronous communication drains me. I realized I&#39;ll be a lot more productive working independently in solitude.</p>&mdash; Winnie Lim (@wynlim) <a href="https://twitter.com/wynlim/status/640949863899762688">September 7, 2015</a></blockquote>
-<script async src="//platform.twitter.com/widgets.js" charset="utf-8"></script>
-
 <blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">which means maybe my work will never get far, but I am comforted throughout history people do isolate themselves for long periods to work.</p>&mdash; Winnie Lim (@wynlim) <a href="https://twitter.com/wynlim/status/640950604290850816">September 7, 2015</a></blockquote>
 <script async src="//platform.twitter.com/widgets.js" charset="utf-8"></script>
 
