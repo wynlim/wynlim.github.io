@@ -1,7 +1,7 @@
 ---
 layout: post
-title: happiness and drive II
-permalink: happiness-and-drive-II
+title: what did we forget
+permalink: what-did-we-forget
 ---
 Last week I attended an event a friend was hosting and another presenting – “[Future Fridays: What We’ve Forgotten](https://www.facebook.com/events/594593307332272/)”. I have been progressively devouring any bit of local history I could find and have the time to consume since I’ve returned to Singapore (I am also obsessed about how the role of data would play out in the work of future historians), so it was intriguing for me to attend an event that was meant to inquire what we have forgotten, in order to think about our future. 
 
