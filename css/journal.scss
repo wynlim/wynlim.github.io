@@ -98,6 +98,9 @@ hr {
 	ul, ol {
 		overflow: auto;
 		margin: 1em 0;
+		a {
+			text-decoration: underline;
+		}
 	}
 	.post {
 		float: left;
