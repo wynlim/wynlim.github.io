@@ -4,7 +4,7 @@ title: confluence
 permalink: confluence
 ---
 
-There is the cliché, that money can be earned, but we cannot turn back time. I think most of us are aware of this, but we don’t really feel the actual impact of what it means until we experience some form of loss, or forced to deal with deadline. Sometimes this deadline comes in the form of our own mortality.
+There is the cliché, that money can be earned, but we cannot turn back time. I think most of us are aware of this, but we don’t really feel the actual impact of what it means until we experience some form of loss, or forced to deal with a deadline. Sometimes this deadline comes in the form of our own mortality.
 
 For a long time I lived my life thinking that I had to do a million things in the event that I died the next day, only to find out much later in life that I didn’t really care about myself being dead, but it was the potential loss of other people or things that affected me more. Sometimes this loss doesn’t take in the form of death, but the disconnect in timelines – we find out that some things are no longer in place when we get there. Confluence, is something we don’t think much about when we plan our lives ahead.
 
