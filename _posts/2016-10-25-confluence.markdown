@@ -10,8 +10,7 @@ For a long time I lived my life thinking that I had to do a million things in th
 
 A simple example: many of us work really hard so we can retire at some point, and we tell ourselves we can spend time with our loved ones then, or do the things we love. But we don’t think about – will we still be healthy, mobile and alive by then, or what or who we love will still be around for us?
 
-There is [this waitbutwhy article](http://waitbutwhy.com/2015/12/the-tail-end.html) that sums this up:
-> “Quality time matters. If you’re in your last 10% of time with someone you love, keep that fact in the front of your mind when you’re with them and treat that time as what it actually is: precious”
+> “It turns out that when I graduated from high school, I had already used up 93% of my in-person parent time. I’m now enjoying the last 5% of that time. We’re in the tail end...Quality time matters. If you’re in your last 10% of time with someone you love, keep that fact in the front of your mind when you’re with them and treat that time as what it actually is: precious” – [waitbutwhy](http://waitbutwhy.com/2015/12/the-tail-end.html)
 
 I am now 35, and I am already experiencing the effects of not being mindful of my health in the past two decades. I am grateful that I am constantly reminded of the preciousness of my health by my chronic conditions instead of something more sinister or final. I try not to take anything for granted, even this seemingly simple capacity to write this post. I have experienced migraines so debilitating that I can’t even open my eyes, much less type a sentence.  
 
