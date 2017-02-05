@@ -16,7 +16,7 @@ I am in a state of limbo now. I have just finished a stint with a government age
 
 > "When you know you’ve been blessed and know you have a set of gifts, how do you maximize those gifts so you’re impacting the greatest number of people?" 
 
-…and it has been my email signature for at least half a decade if not more. Yet I am beginning to have issues with the phrase “greatest number of people”, because we can’t measure impact simply by scale. The obsession with scale is causing a lot of issues in the world. 
+…and it has been my email signature for at least half a decade if not more. Yet I am beginning to have issues with the phrase “greatest number of people”, because we can’t measure impact simply by scale. The obsession with scale can have unintended consequences.
 
 I am also tired of being a problem solver. Maybe it is just time to seriously turn that problem solving energy inward. I cannot help but feel like my obsession with solving problems is only but a better drug than say, alcohol. It allows me to avoid facing deeper issues within myself, because being useful to something is one of the easiest ways to bury our own demons. 
 
