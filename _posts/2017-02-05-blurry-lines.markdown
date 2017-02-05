@@ -4,13 +4,6 @@ title: blurry lines
 permalink: blurry-lines
 ---
 
----
-layout: post
-title: blurry lines
-permalink: blurry-lines
----
-2016-02-05-blurry-lines.markdown
-
 I have been maintaining a one post per week routine for a long while now, spread across this public journal, Medium and the occasional tinyletter. The past few months has made it increasingly difficult for me to keep up with this routine. 
 
 It is difficult to write when there is an internal turmoil, because writing requires a certain clarity, yet perhaps writing to gain clarity is precisely needed in times of turmoil. There have been times before when I set out to write on this page with nothing in mind, but something would eventually unfold, even if it is messy. That is why there is a deliberate effort to name this a public journal instead of a blog – journals are effective because they allow us the space to unfold our messy thoughts. Having the commitment to write at least once a week is also helpful, because it forces me to write when I really don’t _feel_ like it, a much-needed discipline in my chaotic life. 
