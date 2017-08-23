@@ -1,6 +1,6 @@
 ---
 layout: post
-title: negative-capability
+title: negative capability
 permalink: negative-capability
 ---
 
