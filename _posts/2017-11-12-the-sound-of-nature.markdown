@@ -11,7 +11,7 @@ _The rapture that is associated with being alive._I have consistently found myse
 
 I have felt that way before, time and time again. My mind tells me that life is not worth living for and yet there is an inner part of me – do we call it the soul? – that doesn’t have an intellect. It just _knows_, _feels_, and _be_ part of. Sometimes I think the price of such _knowing_ is to give up the comfort of being part of the crowd. 
   
-\> “The sacrifice that magic demands is solace.” – Carl Jung
+> “The sacrifice that magic demands is solace.” – Carl Jung
 
 I have to run far, deep into the forest and stay very still in order to hear the sound of nature. The sound of nature that surrounds me, the sound of my nature. The sound of how they come together.
 
