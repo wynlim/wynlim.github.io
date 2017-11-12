@@ -7,9 +7,9 @@ I loved “The Power of Myth” by Joseph Campbell ever since I read it in mid-2
 
 > “What’s the meaning of a flea? It’s just there. That’s it. And your own meaning is that you’re there. We’re so engaged in doing things to achieve purposes of outer value that we forget that the inner value, the rapture that is associated with being alive, is what it’s all about.”
 
-_The rapture that is associated with being alive._I have consistently found myself in great conflict, straddling between _life sucks and I cannot wait to meet my end_, and _oh my god, have you ever seen a tree up close? have you ever woken up to the magic of birds chirping and the skies are blue and every single cell of your body feels alive?_
+_The rapture that is associated with being alive._ I have consistently found myself in great conflict, straddling between _life sucks and I cannot wait to meet my end_, and _oh my god, have you ever seen a tree up close? have you ever woken up to the magic of birds chirping and the skies are blue and every single cell of your body feels alive?_
 
-I have felt that way before, time and time again. My mind tells me that life is not worth living for and yet there is an inner part of me – do we call it the soul? – that doesn’t have an intellect. It just _knows_, _feels_, and _be_ part of. Sometimes I think the price of such _knowing_ is to give up the comfort of being part of the crowd. 
+I have felt that way before, time and time again. My mind tells me that life is not worth living for and yet there is an inner part of me – do we call it the soul? – that doesn’t have an intellect. It just _knows_, _feels_, and _be_ part of. It _is_ alive. Sometimes I think the price of such _knowing_ is to give up the comfort of being part of the crowd. 
   
 > “The sacrifice that magic demands is solace.” – Carl Jung
 
