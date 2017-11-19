@@ -43,9 +43,11 @@ p{
 	margin-top: 0;
 }
 
-hr {
-	border: 1px dotted #eee;
-	margin: 35px 0;
+hr {	
+	border: 0;
+	border-top: 1px solid #eee;
+	margin: 35px auto;
+	width: 33%;
 }
 
 //custom styles
