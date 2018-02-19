@@ -7,3 +7,4 @@ permalink: /:title/
 url: http://journal.winnielim.org
 author: Winnie Lim
 description: random fragments of life and love
+paginate: 5

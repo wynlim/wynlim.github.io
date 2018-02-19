@@ -20,7 +20,6 @@ body{
 }
 
 a{
-	text-decoration: none;
 	color: #000;
 }
 
@@ -34,6 +33,12 @@ h1,h2,h3,h4,h5{
 	line-height: 1.2em;
 	margin:0 0 0.25em 0;
 	padding:0;
+}
+
+h1 {
+	a {
+		text-decoration: none;
+	}
 }
 
 p{
