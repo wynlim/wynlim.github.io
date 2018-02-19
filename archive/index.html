@@ -4,15 +4,16 @@ layout: default
     
     <ul class="post-list archive">
 
-    {% for post in site.posts %}
-      <li>
-      	<div class="post-date col-md-3">
-      		<span>{{ post.date | date_to_string }}</span>
-      	</div>
-      	<div class="post-title col-md-9">
-      		<a href="{{ post.url }}">{{ post.title }}</a>
-      	</div>
-      </li>
-    {% endfor %}
+   {% for post in site.posts %}
+       {% assign currentDate = post.date | date: "%Y" %}
+       {% if currentDate != myDate %}
+           {% unless forloop.first %}</ul>{% endunless %}
+           <h2>{{ currentDate }}</h2>
+           <ul>
+           {% assign myDate = currentDate %}
+       {% endif %}
+       <li><em>{{ post.date | date: "%b %d" }}</em> <a href="{{ post.url }}">{{ post.title }}</a></li>
+       {% if forloop.last %}</ul>{% endif %}
+   {% endfor %}
 
     </ul>
