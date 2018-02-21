@@ -1,6 +1,6 @@
 ---
 layout: post
-title: why-search-for-inner-peace
+title: why search for inner-peace
 permalink: why-search-for-inner-peace
 tags: book, buddhism, meaning
 ---
