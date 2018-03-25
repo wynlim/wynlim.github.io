@@ -17,6 +17,6 @@ I feel hopeful for these activist kids, that they are a generation who grew up w
 
 Recently I keep trying to surface my past, trying to remember when and what made me into this anxious person. I remember feeling naive idealism and a sense of anything is possible. I remember believing that great change can be done with deliberate intention and action. But these days I live with fear and a sense of cynicism. 
 
-I think about the kids, and I wonder if youth is extremely precious because there is a window when the world doesn’t feel that harsh and one has not experienced enough human ruthlessness and conditioning to be jaded. I wonder if the right way to survive adulthood is to build a sense of creative resilience to withstand the cynicism that will inevitably come our way. I wonder if there is hope for someone like me to feel like a kid again. 
+I think about the kids, and I wonder if youth is extremely precious because there is a window when the world doesn’t feel that harsh and one has not experienced too much human idiocracy and conditioning to be both fatigued and jaded. I wonder if the right way to survive adulthood is to build a sense of creative resilience to withstand the cynicism that will inevitably come our way. I wonder if there is hope for someone like me to feel like a kid again. 
 
 I have lost my innocence and with it, my idealism but perhaps with enough work I could find a different way to perceive the world again. 
