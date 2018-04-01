@@ -3,7 +3,7 @@ layout: post
 title: a series of cuts
 tags: pain, existentialism, sensitivity, resilience
 ---
-A series of events have made me really stressed out lately, though someone else in my shoes probably wouldn’t be very affected. In recent years I’ve learned to observe other people’s behavior in context to mine, and I realised for most people, they tend to let things affect them a little and then move on, whereas I accumulate them like a bin except I don’t seem to ever empty my trash. 
+A series of events had made me really stressed out lately, though someone else in my shoes probably wouldn’t be very affected. In recent years I’ve learned to observe other people’s behavior in context to mine, and I realised for most people, they tend to let things affect them a little and then move on, whereas I accumulate them like a bin except I don’t seem to ever empty my trash. 
 
 I’ve also learned that I probably never really learned to regulate my emotions as a baby (that’s the age where we form our brains by mirroring our caregiver) and coupled with some genetic lottery I’ve just turned into this really over-sensitive person until to a point it is actually disabling. I have never seen my sensitivity as a disability until I realised (again) how much energy I spend over-reacting to everything and how much it burns me out. Then again I didn’t know emotions or emotional labour can burn us out either. 
 
