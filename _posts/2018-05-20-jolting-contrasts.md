@@ -1,0 +1,14 @@
+---
+layout: post
+title: jolting contrasts
+tags:
+---
+Having spent a week in Taipei I am reminded why travel takes a lot of weight in my life. It is the opportunity to take oneself out of a familiar context, to be forced into a heightened awareness because we are in unfamiliar surroundings. Back home I navigate myself around with my eyes half closed, I don’t look around myself much anymore because my brain is blind to a place so familiar to me. 
+
+Being in a different territory and culture I keep getting these jolting contrasts — I witness the seemingly mundane interaction between a breakfast shop owner and a school kid and I feel a lump in my throat. Everything has this romantic tinge to them: from the musical intonations of the Taiwanese to the revived old buildings made into creative spaces. It makes me wonder if we are more immune to the spirit we carry within ourselves, and the presence of a foreign energy is inevitably provocative.
+
+Browsing an under ground bookstore I came across this book titled, 被討厭的勇氣 — loosely translated to “The courage to be hated”. It turned out to be a chinese translation of a Japanese interpretation of [Alfred Adler](https://en.wikipedia.org/wiki/Alfred_Adler)’s philosophy. I ended up reading an english translation of the book and gained a basic insight to Adler’s theories through the lenses of two Japanese co-authors. What a convoluted yet beautiful way to learn something!
+
+I miss and lack this sort of serendipity in my life at home. Home has been a sanctuary to me, but has also played a part in causing me to be somewhat static. Travel forces me to engage with the world because the allure of discovery is too hard to resist. Interacting with life does not come naturally to me, I prefer to engage with words through the barriers of various mediums.
+
+Somehow all of this makes me think of my previous desire to live a monastic life. Buddhist philosophy is about seeing that everything is an illusion, and many have interpreted this to mean that we should practice non-attachment. I wondered what’s the point of living when you are not attached to anything. I have come to a recent thought that perhaps it is about unconditioning ourselves from the usual things that we’re attached to — symbols of power and validation — then from that empty space we would be able to freely choose what do we wish to be attached to instead. I think there is a courage needed to lead a monastic life, to let go of everything, and there is also courage needed to be fiercely committed to being alive and human. Maybe that’s why in folklore we have stories of deities falling in love with human beings or choosing to be human, without imperfection would there be space for unconditional love, would there be stories of incredible courage and resilience? Would there be a poem writing about [stubborn gladness](https://www.poemhunter.com/poem/a-brief-for-the-defense/)?
