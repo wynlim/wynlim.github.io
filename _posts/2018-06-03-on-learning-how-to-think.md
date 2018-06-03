@@ -20,7 +20,7 @@ These days I am bothered with a question: how much of my chronic depression is d
 
 I look at myself in the mirror. I see ugliness. I think of myself in my mind, I become impatient with my flaws. I don’t think I can do a lot of things, because I have become accustomed to what I believe I can do. I don’t trust myself to handle difficult situations, because I believe I can’t.
 
-The capacity to think divergently makes a critics difference here. Many times it is just the ability to write a different storyline for ourselves. I was a designer but now I want to do something else. I am not sure what is that something else, but what is wrong with not knowing? What makes us try to define ourselves so narrowly? When I look into my perceived beliefs deeply, all I see were societal constructs. Why do we need to have careers? Why do we have to explain ourselves? Why do we have to try so hard to be validated? Can I co-exist
+The capacity to think divergently makes a critical difference here. Many times it is just the ability to write a different storyline for ourselves. I was a designer but now I want to do something else. I am not sure what is that something else, but what is wrong with not knowing? What makes us try to define ourselves so narrowly? When I look into my perceived beliefs deeply, all I see were societal constructs. Why do we need to have careers? Why do we have to explain ourselves? Why do we have to try so hard to be validated? Can I co-exist
 with my sadness instead of trying to get rid of
 it? Is happiness really important? Must life be precious to everybody? Why is existence important? If the point of life lies in the meaning, what is the point of meaning?
 
@@ -28,4 +28,4 @@ There are some questions I don’t have answers to, and once again I want to hav
 
 I just need to develop the skill to remember this: that my world view is narrow, the view of myself is narrow too, and ahead lies the potential of the unknown. Even the ability to intervene with our own line of thinking and interject new lines is a developed skill, and I classify it as one of the micro-skills under the umbrella of learning how to think.
 
-I think the secret of life is to always have a question at every point we think we have static answers to.
+I think the secret of life is to always have a question at every point we think we have static answers to
