@@ -1,0 +1,37 @@
+---
+layout: post
+title: love does not run on autopilot
+permalink: love-does-not-run-on-autopilot
+tags: love, dots, dot
+---
+Today is my writing day (typically on sunday), and it also happens to be our 28-month anniversary, so I thought I'll take the opportunity to reflect on us. 
+
+2 years-ish is not a very long time for a relationship, but it is long enough to get past the initial honeymoon stage where everything seems sunny and full of promise. This is the time when masks if any start to drop, and we go from our very best selves to…just being our selves. The romance fades, and couples become like housemates. 
+
+Having been in and out of several relationships for the last 2ish decades I was aware of the transience of "romance". The word "romance" and "love" seems to be thought of interchangeably. They can be, if we're lucky, but most of the time romance means all the elaborate gestures we do for our partners in the initial stages, including the heartbeat-pulsating intense feelings. The curiosity and pleasure of knowing and being with a new person: wow, what a rush. 
+
+I guess I am lucky and old enough now to know, romance is not love. This is what that makes or breaks relationships, because of stupid hollywood movies and korean dramas we tend to mistake romance for love. So when the romance and intense feelings fizzle out, we wonder where is the love?
+
+I've written about [what I think love is](https://medium.com/fragmented-musings/what-i-learned-about-love-and-loving-a-person-1de4d1f222c4), so I will not repeat it here. However, I would like to point out: long, great, love can be romantic too. It just takes effort and mindfulness. But the horrid truth is – which hollywood movies or kdramas do not tell us – we are awfully lazy and mindless creatures. Most of us don't like to think too deeply about things or raise questions about the status quo. So we tend to end up transitioning from being a couple to living like housemates. 
+
+I didn't want my relationship to be like that, especially since my last one was that way and I didn't even realise it – the difference between co-dependency and love – so this time around I sought to change fate. I insisted that we celebrate our anniversary monthly, no matter what. 
+
+So every month, we try to do something nice for us. I tend to like eating, she likes nature and art. So far, we haven't missed any one and I am rushing to finish this one so we can commence on today's. 
+
+I don't think love and/or romance runs on autopilot. People think they meet the love of their lives and we will live happily ever after. I really blame the media. Celebrating an anniversary monthly is a checkin in reality: does this date really mean something still, how do I still feel about this person, remembering how much we went through to get together, how easy to let time pass and things slip, how much gratitude we have to be able to wake up to the person next to us. It is a time to put aside all the mundane responsibilities and chores in a partnership to really _see_ our partner, to re-demonstrate the love in case we let this precious time and love pass us by without even being aware of it. In fact, a monthly reminder is too far apart, it should be on a daily basis, to remember to _love_ and not just live with. But I acknowledge as humans it is difficult to get past our conditioning to take the least effort as much as possible. 
+
+Not many people know this, but I was convinced I would never consciously choose monogamy again. I thought it was a fallacy brainwashed into us so that society would be neater. How could one person really love just one other person for the rest of our lives, how could said person remain _lovable_? 
+
+2 years-ish is a short time compared to _the rest of our lives_. But like I have mentioned a while ago, it is also enough time for a relationship to change its quality – usually for worse. When they say marriage is like wine because it gets better as it ages I was like what the hell are they talking about? Relationships cannot fight against the law of diminishing returns, so I thought. Most people just accept it as a law of nature, so we all settle and compromise with good-enough. 
+
+On our 28th-month anniversary, I would really like to express the sentiment: marriage does get better with time. Obviously we're not legally married because we can't in our own country and for now it is a little pointless to get married elsewhere because we don't enjoy any economic or legal privilege as a married couple, but we have joined our names in a estate purchase and we operate just like any other married couple. It doesn't mean it would be impossible for us to split, but straight people divorce like three times and they still get unlimited chances to marry, so the only way to view a marriage is to tend to it as though we mean it for life, just like my partner and I do so now.
+
+What gets better with time is the level of psychological intimacy. We have been so intentional with our honesty to each other – well some couples talk in code even after decades of marriage – that in the initial stages of our relationship I was skeptical if it would endure all that truth. There was no up-selling right from the start, in fact I was very deliberately down-selling. We placed all the possible difficulties and anything that may be dealbreakers right at the start, when it was the most fragile. So we fought and cried a lot. We fought so deeply that every monthly anniversary then felt precarious, like we were never going to celebrate the next, so we were exceptionally conscious of it.  
+
+But now, we get to enjoy the wine. We put us through tests, power struggles, airing of skeletons in the closets, psychoanalysing, terrible ending scenarios, emotional manipulation – till it got to a point where we now have an acceptance, understanding and love of each other that I presume will take a lot to break. We have created a psychological safe space for each other and for the relationship where we can be our worst selves and yet know that we're both trying our best to work on it. That we will never consciously choose to hurt each other. If there was some hurtful behaviour, we usually understand that it was probably an accumulation of events that we *both* have responsibility towards, so we work together on it. We try to problem solve the issues caused by our different psychological dynamics. Together.
+
+Previously, I would just keep my true feelings to myself, feel unsafe, blame everything on my partner that they didn't love me enough, but suffer like a martyr because "I was willing to suffer for love". Didn't they tell us it is all about sacrifice and compromise? They didn't tell us a relationship is dysfunctional if the compromising and sacrificing is based on unequal terms and repression. A relationship should be expansive, it should not make us feel like we're shrinking. (There is a lot I have to write about unhealthy relationship dynamics which I'll probably do so in another post.)
+
+There is a certain joy and sense of home to be felt in a relationship where we can feel safe with. To share our darkest thoughts with, to confront our darkest selves with, to co-create a future and home together. Life really sucks sometimes and if we can find someone who is there to hold our hand through the best and worst of us and times, then I think it is one of the luckiest and most privileged events that can ever happen to us.
+
+And I consider myself extremely lucky and privileged to be in this relationship.
