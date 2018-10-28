@@ -1,6 +1,6 @@
 ---
 layout: post
-title: stripping away suffering
+title: unpeeling layers
 tags: buddhism, self, psychology, mundaneness, book
 ---
 Years ago I had a job I thought I had loved. But it came to a point in time when circumstances made it untenable for me to stay – it was only then when I realised how much my identity was tied to work and the company I worked for. Then one day I didn't want to be a designer anymore. Slowly, layer by layer, the "I" I knew myself as unpeeled. Part of it was exacerbated by my ill health. If I could no longer do what I used to be good at doing, what is left? 
