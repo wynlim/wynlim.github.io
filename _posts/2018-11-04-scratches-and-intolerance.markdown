@@ -1,0 +1,26 @@
+---
+layout: post
+title: scratches & intolerance
+tags: self, psychology, narcissism, compassion, tolerance
+---
+Once, I noticed this tiny scratch near the headphone jack of my then newly-bought device. It made me really upset for a long time. Then we moved into our new home and I noticed fine scratches on our newly-installed stainless steel sink. Again it made me really upset, bordering on a meltdown. I would notice scratches here and there, and they took me a long time to get over. 
+
+Some time ago (probably due to the books I have been reading), I started to be curious about my feelings. Why did scratches make me so upset? I realised that a large part of it comes from blaming myself: I blamed myself for not taking good enough care of things. This has a history behind it. I was often careless with my things when I was younger and so as an adult I over-compensated for it. 
+
+Digging deeper, I learned that I am intolerant of faults. A scratch, no matter how tiny or visible it is, represents a fault in something that was once perfect and whole. This mirrored the relationship with myself. I was very intolerant of the flaws I saw in myself, and I berated myself over them again and again. It could be something like allowing myself to overeat, or unintentionally snapping at someone, or feeling insecure. I became conscious of the overwhelming, repetitive feelings my body induced in myself whenever I blame myself for something. It feels like this sinking, gnawing sensation – it often grows in the background until it becomes a wholesale depression. 
+
+All of this phenomenon, I haven't been aware of it. I was just aware that I was sensitive and easily depressed, but I didn't break it down. I think it was an assumption and societal conditioning that terrible moods are part of one's innate character. 
+
+There are many complex, scientifically researched reasons for why someone can be prone to tempers and mood swings. It could be transgenerational trauma, feeling unsafe as an infant and/or child, disordered brain chemistry, bad diets, lack of exercise, etc. In reality all of those are often inter-related. But this researched knowledge made me learn that people are often not born a certain way. What we think of as "our character" is often a response to our environment. How about genes that we inherited? Even genes can switch on and off, they are not as static as we once believed. 
+
+What does this mean? For me, it means that for every seemingly bad behaviour or response, there is often a suffering behind it. We suffer, so either we retaliate/compensate in unhealthy ways often unconsciously or we internalise our suffering, directing it at ourselves. I have become intolerant of my own flaws and mistakes because society (especially in Asian society) is intolerant of flaws and mistakes in general. We often warn people from perceived dangers by issuing absolute threats: "if you do x you will regret it for the rest of your life!". We don't tell people it is okay to make mistakes most of the time, or failure is acceptable as a condition for taking risks, and most importantly, we don't understand the psychology of negative behaviour, so we blame it solely on the individual. A good or bad person is determined by their decisions, without giving any consideration to what makes a person, a person.
+
+Because I was intolerant I was also often intolerant towards other people. Slowly, I learned to see the suffering behind my flaws, my feelings. We are often told to get over ourselves, that focusing on the self is narcissistic, that in a confucian society we have to put the others before self. But ignoring our own pain, dismissing it, causes not only more pain to ourselves but to people around us as well. Pain causes suffering, suffering causes retaliation. Our own suffering causes us to be blind towards other people's suffering, and we get so caught up in our feelings that we often don't realise we are hurting people. I have observed people being unkind to strangers, or worse towards their own family, and I used to wonder, why? How can someone be so unkind without being aware the damage they are causing? There are many complex answers, but often people are more concerned about being right or not losing their authority/power because their very sense of security is being very threatened. Their own feelings of fragility has to be soothed immediately first, it is always about why people are nasty to them, why do people have to disagree with them, offend them, them, them, them, always their feelings. 
+
+By them, I also mean me.
+
+The irony is, by ignoring our pain everything eventually becomes all about soothing our pain, without us realising it consciously.
+
+How can someone be so unkind? I learned the answer by finally perceiving the ways I have been unkind, whether to myself or to other people. Unkindness is caused by internal suffering, the ignoring of such suffering.
+
+To be kind, to truly be compassionate, requires us to learn how to _notice_ suffering, to understand what makes a person a person. I feel like I am only beginning my journey, but I have begun to notice a gradual softening, a decreased propensity to react with anger instinctively, a willingness to learn and comprehend, both myself and the other.
