@@ -4,6 +4,7 @@ title: dynamic living
 permalink: dynamic-living
 tags: life, zen, philosophy, dynamicism
 ---
+2019-01-27-dynamic-living.markdown
 
 I love reading books on zen, but it is not easy to find good ones in my opinion. Most are repetitive, and they either try too hard or they over-simplify everything. Good books on zen induce a head cramp because they often provoke me to think of ways I've never thought before, and they remind me that often profound truths lie in simplicity. 
 
@@ -19,7 +20,9 @@ But what I really like about zen is that unlike buddhism (though it branched fro
 
 Adjacent to the capacity to respond dynamically, is the ability to see things for what they really are, without the additional conditioning or biases that have become part and parcel of living in a modern society. It is the ability to see things as they are that will enable us to respond appropriately, not too much, not too little.
 
-Personally I have become gradually aware how much I get stuck in unhealthy thought patterns, how much I tend to heap on my own biased interpretations of events, and how much all of that is affecting my capacity to live life as fully as possible. I can't really see things as what they are. I can't even see you for who you are, because I am probably projecting on you. And perhaps more critically, I cannot see myself for who I am, because the image of myself in my mind is severely distorted. When everything is distorted, my behaviour and responses are inevitably distorted. It is like seeing through a dusty window, perceiving the world out there is grey and dark, but it never occurred that it is the window that is filtering my perception of the actual colours.
+Personally I have become gradually aware how much I get stuck in unhealthy thought patterns, how much I tend to heap on my own biased interpretations of events, and how much all of that is affecting my capacity to live life as fully as possible. It is like life is constantly giving me new chess pieces and situations all the time, but I am stuck making the same old moves with the same old pieces.
+
+I can't really see things as what they are. I can't even see you for who you are, because I am probably projecting on you. And perhaps more critically, I cannot see myself for who I am, because the image of myself in my mind is severely distorted. When everything is distorted, my behaviour and responses are inevitably distorted. It is like seeing through a dusty window, perceiving the world out there is grey and dark, but it never occurred that it is the window that is filtering my perception of the actual colours.
 
 How can I clean my windows? Or perhaps I can open them, or knock them down? Maybe the windows aren't even there in the first place, but I thought they were there because someone told me that they are supposed to be there. 
 
