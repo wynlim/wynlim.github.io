@@ -4,8 +4,6 @@ title: dynamic living
 permalink: dynamic-living
 tags: life, zen, philosophy, dynamicism
 ---
-2019-01-27-dynamic-living.markdown
-
 I love reading books on zen, but it is not easy to find good ones in my opinion. Most are repetitive, and they either try too hard or they over-simplify everything. Good books on zen induce a head cramp because they often provoke me to think of ways I've never thought before, and they remind me that often profound truths lie in simplicity. 
 
 There is [nothing simple about being simple](http://journal.winnielim.org/there-is-nothing-simple-about-being-simple). It is like how people say it is way easier to say or write something verbose and long, but it takes skill to be capable of expressing the same sentiment with clarity and brevity. I think life is similar: it is easier to live a complicated life, but knowing what and how to pare down, knowing what truly matters and being able to focus on that, takes a lifetime of wisdom. 
